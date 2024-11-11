@@ -2,8 +2,8 @@
 When the wind changes
 Some build walls
 Others build windmills
-I choose windmills
 ```
+> I choose windmills
 
 # Cebu: The Heart of the Philippines
 
