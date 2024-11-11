@@ -955,3 +955,243 @@ Many of these legends continue to be shared and documented through:
 - Security guard accounts
 
 Note: While these urban legends are widely known in Cebu City, experiences and beliefs vary among individuals. Some locations mentioned may have restricted access or have been renovated/demolished, changing the nature of the legends.
+
+---
+
+# Time-Based Supernatural Beliefs and Practices in Cebu
+
+## Critical Hours
+
+### 3:00 AM (Devil's Hour)
+- Considered the inverse of Christ's death time (3 PM)
+- Strongest supernatural activity
+- Avoid waking up or being awake
+- No mirror-looking
+- Don't respond to voices calling your name
+- Prayer recommended if awake
+- Don't look out windows
+
+### 12:00 Noon (Oras na Init)
+- Height of engkanto activity
+- Avoid sleeping under trees
+- No outdoor activities in remote areas
+- Children called indoors
+- Particular care near balete trees
+- Avoid disturbing soil/earth
+- No loud noises near known engkanto spots
+
+### Dusk (Saging-saging)
+- Transition period most dangerous
+- Quick bathing recommended
+- No pointing at darkness
+- Children must be indoors
+- No whistling
+- Avoid cutting nails
+- Don't shake trees
+
+### Midnight (Tunggang Gabii)
+- Peak hour for aswang activity
+- No laundry hanging outside
+- Doors and windows secured
+- Salt lines refreshed
+- No sweeping
+- Avoid looking into darkness
+- Prayer before sleep mandatory
+
+## Weekly Considerations
+
+### Tuesday and Friday Nights
+- Heightened aswang activity
+- Extra precautions needed
+- Earlier curfew for children
+- No solo travel recommended
+- Protective items checked
+- Houses secured earlier
+- Group activities preferred
+
+### Holy Week Specific
+- Increased supernatural activity
+- Strict observance of hours
+- No travel at noon
+- Special prayers required
+- Enhanced protective measures
+- Group activities mandatory
+- Extra care near sacred sites
+
+## Monthly Patterns
+
+### Full Moon
+- Increased engkanto activity
+- No outdoor sleeping
+- Avoid remote areas
+- Special protection needed
+- Enhanced house blessing
+- Group travel advised
+- Extra prayers recommended
+
+### New Moon
+- Dark spirit activity peaks
+- Earlier curfew
+- Enhanced protection needed
+- House blessing renewed
+- Salt lines refreshed
+- Group activities preferred
+- Special prayers observed
+
+## Seasonal Considerations
+
+### Rainy Season
+- Increased supernatural activity
+- No umbrella opening indoors
+- Careful of puddle reflections
+- Enhanced house protection
+- Special care near water
+- Group travel preferred
+- Extra protective measures
+
+### Ghost Month (July/August)
+- Heightened ancestor activity
+- Strict hour observance
+- Enhanced protection needed
+- Special offerings required
+- No major life changes
+- Extra care in all activities
+- Group protection emphasized
+
+## Location-Specific Times
+
+### Near Bodies of Water
+- No bathing at noon/midnight
+- Dawn/dusk extra care
+- Tide-based restrictions
+- Special water spirit hours
+- Group activities mandatory
+- Enhanced protection needed
+- Specific prayer times
+
+### Mountains/Forest Areas
+- No activity at high noon
+- Dusk restrictions strict
+- Dawn special procedures
+- Enhanced protection times
+- Group requirements
+- Offering schedule
+- Prayer times observed
+
+### Old Buildings/Sites
+- Enhanced noon restrictions
+- Midnight absolute avoidance
+- Dawn/dusk procedures
+- Special protection times
+- Group requirements strict
+- Prayer schedule enhanced
+- Protection renewal times
+
+## Protective Practices by Time
+
+### Morning Rituals (Buntag)
+- Dawn prayers
+- Protection renewal
+- Salt line checking
+- Amulet blessing
+- House blessing
+- Special morning prayers
+- Protection activation
+
+### Afternoon Procedures (Udto)
+- Noon prayers
+- Indoor activity time
+- Protection enhancement
+- House securing
+- Special precautions
+- Group organization
+- Protection renewal
+
+### Evening Practices (Gabii)
+- Dusk prayers
+- House securing
+- Protection maximizing
+- Group organization
+- Special evening prayers
+- Protection checking
+- Final securing
+
+## Modern Adaptations
+
+### Urban Settings
+- Modified time restrictions
+- Adapted protection methods
+- Modern scheduling adjustments
+- Group activity planning
+- Protection modernization
+- Time management strategies
+- Urban-specific practices
+
+### Work Considerations
+- BPO shift adjustments
+- Protection for night work
+- Group travel arrangements
+- Modified prayer times
+- Protection enhancement
+- Schedule adaptation
+- Special work practices
+
+### Travel Adaptations
+- Time-based route planning
+- Group travel scheduling
+- Protection during travel
+- Special travel prayers
+- Time restriction observation
+- Travel protection methods
+- Schedule adjustments
+
+## Time-Based Taboos
+
+### Personal Activities
+- No nail cutting at night
+- No hair brushing after dark
+- No whistling at night
+- No mirror use at specific hours
+- No name response times
+- No solo activities periods
+- Special care hours
+
+### Household Activities
+- No sweeping at night
+- No garbage disposal times
+- No laundry after dark
+- No major cleaning hours
+- No loud noise periods
+- No construction times
+- Special care periods
+
+### Social Activities
+- No solo travel times
+- No visiting hours
+- No celebration periods
+- No gathering restrictions
+- No party hours
+- No outdoor event times
+- Special care times
+
+## Emergency Procedures
+
+### During Restricted Hours
+- Emergency prayer use
+- Protection maximizing
+- Group formation
+- Special precautions
+- Protection activation
+- Emergency measures
+- Safety procedures
+
+### Unexpected Events
+- Protection activation
+- Emergency prayers
+- Group formation
+- Special measures
+- Protection enhancement
+- Safety procedures
+- Emergency responses
+
+Note: These practices vary by family, area, and personal belief levels. Urban areas may observe modified versions while rural areas tend to maintain stricter observance.
