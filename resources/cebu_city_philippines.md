@@ -180,48 +180,6 @@ Cebu City stands as a living testament to the Philippines' past, present, and fu
 - **Business Travel**: Year-round
 - **Avoid**: June to September (typhoon season)
 
-### Getting Around
-1. **Modern Options**
-   - Grab (ride-hailing)
-   - MyTaxi
-   - Modern jeepneys
-   - **Cost Range**: ₱50-300
-
-2. **Traditional Transport**
-   - Traditional jeepneys
-   - Habal-habal (motorcycle taxis)
-   - **Cost Range**: ₱10-50
-
-### Essential Apps
-- Grab (transport and food)
-- FoodPanda
-- Waze
-- GCash/Maya (digital payments)
-- **Tip**: Download before arrival
-
-## Why Choose Cebu?
-
-### For Business Travelers
-- Modern facilities
-- Strong English proficiency
-- Lower costs than Manila
-- International accessibility
-- Growing tech ecosystem
-
-### For Culture Seekers
-- Living history
-- Active traditions
-- Religious heritage
-- Cultural festivals
-- Authentic experiences
-
-### For Digital Nomads
-- Fast internet
-- Affordable living
-- Co-working spaces
-- Active expat community
-- Strategic location
-
 ## The Cebu Advantage
 
 What sets Cebu apart is its unique balance: big enough to host international businesses but small enough to navigate easily; modern enough to offer every convenience but traditional enough to maintain its soul. Unlike many Asian cities rushing toward the future, Cebu maintains a harmonious blend of past and present, creating a unique environment where history and progress coexist rather than compete.
@@ -364,32 +322,6 @@ Cebu City, known as the "Queen City of the South," is the capital of Cebu Provin
 - December to February for best weather
 - Avoid typhoon season (June-November)
 
-### Accommodation
-1. Luxury:
-   - Marco Polo Plaza
-   - Radisson Blu
-   - Waterfront Cebu City Hotel
-
-2. Mid-Range:
-   - Quest Hotel
-   - Harolds Hotel
-   - Crown Regency
-
-3. Budget:
-   - Various pension houses
-- Hostels in downtown area
-
-### Safety Tips
-- Use registered taxis or Grab
-- Keep valuables secure
-- Stay aware in crowded areas
-- Carry emergency numbers
-- Have small bills ready for transport
-
-### Essential Contacts
-- Tourist Police: (032) 254-1920
-- Emergency: 911
-- Tourist Information Center: (032) 254-2811
 
 ## Cultural Etiquette
 
@@ -534,8 +466,6 @@ Traditional beliefs remain strong, with specific considerations:
 - Urban legends by district
 - Building-specific stories
 
-# A Complete Guide to Cebu City (Continued)
-
 ## Modern Urban Life
 
 ### Business and Economy
@@ -607,52 +537,6 @@ Traditional beliefs remain strong, with specific considerations:
 - Merienda traditions
 - Sunday family meals
 - Celebration feasts
-
-## Festivals and Celebrations
-
-### Sinulog Festival
-- January celebration
-- Religious aspects
-- Cultural shows
-- Street dancing
-- Food festivals
-- Market fairs
-- Community events
-
-### Other Celebrations
-- Kadaugan sa Mactan
-- Gabii sa Kabilin
-- Christmas season
-- Holy Week
-- Chinese New Year
-- Local fiestas
-
-## Professional Life
-
-### Work Culture
-- More punctual than Manila
-- Strong BPO influence
-- Family business practices
-- Mixed traditional/modern
-- Entrepreneurial spirit
-- Professional networking
-
-### Business Districts
-1. IT Park:
-   - Tech companies
-   - Call centers
-   - Modern offices
-   - 24/7 operations
-   - Food outlets
-   - Entertainment options
-
-2. Cebu Business Park:
-   - Corporate offices
-   - Financial institutions
-   - Luxury hotels
-   - High-end retail
-   - Restaurants
-   - Event venues
 
 ## Practical Information
 
