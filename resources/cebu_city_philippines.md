@@ -1,3 +1,11 @@
+```plantext
+When the wind changes
+Some build walls
+Others build windmills
+
+- I'm choosing windmills!
+```
+
 # A Complete Guide to Cebu City, Philippines
 
 ## Introduction to the Philippines
