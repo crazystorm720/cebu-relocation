@@ -548,15 +548,6 @@ Traditional beliefs remain strong, with specific considerations:
 - Flooding awareness
 - Weather patterns
 
-### Safety Tips
-1. General Precautions:
-   - Stay aware in crowds
-   - Use registered transport
-   - Keep valuables secure
-   - Know emergency numbers
-   - Avoid flash displays
-   - Trust local advice
-
 2. Cultural Safety:
    - Respect sacred spaces
    - Observe local customs
@@ -564,14 +555,6 @@ Traditional beliefs remain strong, with specific considerations:
    - Group travel at night
    - Follow local advice
    - Maintain modesty
-
-### Essential Contacts
-- Emergency: 911
-- Tourist Police
-- Hospitals
-- Tourism Office
-- Consulates
-- Local government
 
 ## Cultural Navigation
 
