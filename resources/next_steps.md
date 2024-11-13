@@ -62,18 +62,12 @@ Key Points:
 
 ---
 
-Elements of the Crime
-To counter the prosecution's case effectively, you must address each element they need to prove beyond a reasonable doubt. The elements typically include:
-
-Actus Reus: The physical act of the crime.
-Mens Rea: The mental state or intent of the defendant at the time of the crime.
-Causation: A link between the defendant's actions and the harm caused.
-Harm: The actual damage or injury resulting from the crime.
-
-False Accusations
-Objective: Prove that the accusation is false.
-
-Steps:
+**Elements of the Crime**: 
+- **Requirements**: The prosecution must prove each element of the crime beyond a reasonable doubt:
+  - **Actus Reus**: The guilty act.
+  - **Mens Rea**: The guilty mind or intent.
+  - **Causation**: The link between the act and the result.
+  - **Harm**: The actual damage or injury.
 
 Motive to Lie:
 Establish why the accuser might fabricate the story.
